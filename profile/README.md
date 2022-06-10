@@ -1,4 +1,5 @@
 # The Portal Realm
+- Etsy: https://www.etsy.com/shop/LostMinions
 - Discord: ?
 - Facebook: https://www.facebook.com/LostMinions
 - Instagram: https://www.instagram.com/lostminions/
