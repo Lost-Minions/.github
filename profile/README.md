@@ -9,4 +9,3 @@
 
 ## Shop
 - Etsy: https://www.etsy.com/shop/LostMinions
------
